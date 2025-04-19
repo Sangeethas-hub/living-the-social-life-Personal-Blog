@@ -40,8 +40,8 @@ Whether it’s decluttering your space, escaping to quiet corners of the world, 
 ## 📬 Connect With Me
 
 Follow the journey:  
-🌐 [your-site-link.com] 
-
+🌐 [https://github.com/Sangeethas-hub] 
+🌐 personal blog--->( https://sangeethas-hub.github.io/living-the-social-life-Personal-Blog/) 
 ---
 
 > _“Live simply, wander deeply, and write your soul into every step.”_
